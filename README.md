@@ -1,3 +1,3 @@
 # Hello-Kara
-my 1st repository
+kara, happy gf day
 I love you
